@@ -1,7 +1,7 @@
 # 想要导航站最新地址发布 
 ## 导 航 永 久 域 名: HttpS://xydhtv.com
-## ⭐️ 👉 地址一 ： HttpS://xydh386.com
-## ⭐️ 👉 地址二 ： HttpS://xydh517.com
+## ⭐️ 👉 地址一 ： HttpS://xydh621.com
+## ⭐️ 👉 地址二 ： HttpS://xydh622.com
 ## ⭐️ 👉 备用导航：HttpS://xydh.cc
 ## ‼️‼️长按复制到浏览器里面访问以上网址‼️‼️
 ## ‼️請使用Ctrl+D進行收藏本站!|电脑/Ipad/手机在线播放‼️
